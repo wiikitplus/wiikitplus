@@ -1,6 +1,6 @@
 ## welcome to my page!!
 
-![gelphie](https://i.pinimg.com/originals/bc/fb/d9/bcfbd956067cf851d628700b53146e79.gif)
+![gelphie](https://github.com/wiikitplus/PHOTO/blob/main/bcfbd956067cf851d628700b53146e79.gif)
 
 my name is **kit**! im 19 i use she/her pronouns but like in a genderfluid way. no they/them please! i am a lover of many things... but right now i am particularly into wicked and katseye! i love gelphie (*i am very like weirdly mentally and emotionally attached to galinda though*) and i am a lara bias, but ultimately am ot6 :3!!! i like five million other things just feel free to ask me if they aren't listed in my txto page. im always happy to talk interests!
 
