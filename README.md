@@ -9,7 +9,7 @@ i made this page for fun, but i usually only am on ponytown when my friends are 
 also must mention that im in the tadc area a lot? but not as a tadc pony? i fear im not really into it like oomfs but im like an ever-binding leech and i stay there for fun. so if you see lara from katseye hanging out with the digital circus... do not be alarmed
 
 
-dni proship/darkship whatever, if you like generally received weird things (BTD go away, hazbin hotel preferably go away but like idgaf that much, etc etc etc so on and so forth), and also? if you are an avid fiyeraba fan... please go away!
+**dni** proship/darkship whatever, if you like generally received weird things (BTD go away, hazbin hotel preferably go away but like idgaf that much, etc etc etc so on and so forth), and also? if you are an avid fiyeraba fan... please go away! + other galindas pls be cautious around me just bc i get rlly defensive abt her+me for no reason im sorry it's a weird mental thing
 
 
 thank you for reading!! happy ponytown-ing!
