@@ -2,7 +2,7 @@
 
 ![gelphie](https://github.com/wiikitplus/PHOTO/blob/main/bcfbd956067cf851d628700b53146e79.gif)
 
-my name is **kit**! im 19 i use she/her pronouns but like in a genderfluid way. no they/them please! i am a lover of many things... but right now i am particularly into wicked and katseye! i love gelphie (*i am very like weirdly mentally and emotionally attached to galinda though*) and i am a lara bias, but ultimately am ot6 :3!!! i like five million other things just feel free to ask me if they aren't listed in my txto page. im always happy to talk interests!
+my name is **kit**! im 19 i use she/he pronouns but like in a genderfluid way. no they/them please! i am a lover of many things... but right now i am particularly into the pitt and musical theatre (wicked in particular)! i like five million other things just feel free to ask me if they aren't listed in my txto page. im always happy to talk interests!
 
 
 i made this page for fun, but i usually only am on ponytown when my friends are online. feel free to strike up a chat with me (im a friendly gal! i do not bite i promise) but i may be afk or focused on other things, and i do struggle to START conversations sometimes. feel free to whisper whenever though! 
